@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **kadaliumeshchandra@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/180TpM7ReUy3zv2h7pwC0T2HM3xeeQG2a/view?usp=sharing](https://drive.google.com/file/d/180TpM7ReUy3zv2h7pwC0T2HM3xeeQG2a/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/180TpM7ReUy3zv2h7pwC0T2HM3xeeQG2a/view?usp=sharing](https://drive.google.com/file/d/1ZMxhItcgXmEfqgXXPHzQcPn7_oqSnTRO/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
